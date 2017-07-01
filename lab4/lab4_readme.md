@@ -1,1 +1,0 @@
-Panning Range Finder
